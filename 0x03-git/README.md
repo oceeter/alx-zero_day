@@ -1,1 +1,1 @@
-we all start somewhere, you can do this!
+keep going, you've got this!
